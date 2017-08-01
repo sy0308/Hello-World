@@ -1,2 +1,2 @@
 # Hello-World
-First repository
+I'm Suzanne and I love to party.
